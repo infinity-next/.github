@@ -6,6 +6,6 @@ I did try to establish an imageboard competitor to 8chan using the new software,
 
 I debated deleting this decade old graveyard of optimism for imageboards but I'm archiving it instead. I don't think there's anything of value here but I am against deleting things. I'm not sure if anyone will ever even read this.
 
-Take it easy,
-Joshua Moon
+Take it easy,  
+Joshua Moon  
 <jcmoon@pm.me>
